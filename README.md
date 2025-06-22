@@ -1,12 +1,14 @@
 # WHO THE HELL AM I?
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
-I'm Felix / Angel | English speaker | He/Him - It/It's
+I'm Felix / Angel | English speaker | He/Him - It/It's | Agender Boy | Male-Leaning Bisexual/MLM
 -
 
 I'm a MAJOR FNAF fan, ask me about it and I will talk about my theories for hours
 
 I'm unapologetically mean and can get pretty loud, but don't be afraid to say hi!
+
+Down bad William Afton simp - Married for 10 years
 
 Some other media interests I currently have are:
 -
