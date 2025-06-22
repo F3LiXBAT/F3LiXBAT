@@ -1,16 +1,33 @@
-## Hi there 👋
+# WHO THE HELL AM I?
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
-<!--
-**F3LiXBAT/F3LiXBAT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Felix / Angel | English speaker | He/Him - It/It's
+-
 
-Here are some ideas to get you started:
+I'm a MAJOR FNAF fan, ask me about it and I will talk about my theories for hours
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm unapologetically mean and can get pretty loud, but don't be afraid to say hi!
+
+Some other media interests I currently have are:
+-
+- NEVERMORE (Webtoon)
+
+- MCU
+
+- MLP:FIM
+
+- MOUTHWASHING
+
+- TADC
+
+- LUCIFER (2016 TV Show)
+
+- UNDERTALE/DELTARUNE
+
+
+I'm an artist and I love drawing fanart and self-ship art. 
+-
+
+If you read all of this you're a nerd ｡^‿^｡
+
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
